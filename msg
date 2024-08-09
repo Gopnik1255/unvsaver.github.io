@@ -1,1 +1,1 @@
-If you see this, then ur good
+Please be patient, we are making fix today.
